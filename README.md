@@ -22,7 +22,7 @@
 
 
 
-**魔戒**：**[https://mojie.best/#/register?code=NevU5b7N]**
+**魔戒**：**[https://bit.ly/3lzOo7b]**
 
 - 节点包括 港 台 美 日 新加坡 土耳其 阿根廷 柬埔寨 马来西亚等
 
@@ -45,7 +45,7 @@
   
 - 所有套餐均为 **永久流量** **不限速** **不限制设备个数** **无到期时间** **流媒体播放**
 
-**飞鸟云**：**[https://feiniaoyun.tk/#/register?code=kz2w8b73]**
+**飞鸟云**：**[https://bit.ly/3G8wZfb]**
 
 - 节点包括 港 台 美 日 韩 新加坡 等
 
@@ -68,7 +68,7 @@
 - 部分套餐为 **永久流量** **1000Mbps速率**  **无到期时间**
 
 
-**茶猫**：**[https://teacat.cloud/#/register?code=7tp4u5kM]**
+**茶猫**：**[https://bit.ly/3LB0FTh]**
 
 - 节点包括 港 台 美 日 新加坡 土耳其等
 
@@ -91,7 +91,7 @@
 
 
 
-**超级跑车**：**[https://www.paoche.ga/#/register?code=007QRl3A]**
+**超级跑车**：**[https://bit.ly/3wJHdyb]**
 
 - 节点包括 港 台 美 日 新加坡 土耳其 阿根廷 柬埔寨 马来西亚等
 
@@ -111,7 +111,7 @@
 - 部分套餐为 **永久流量** **1000Mbps速率** **无到期时间**
 
 
-**八戒**：**[https://bajie.pw/#/register?code=kZZPZtxN]**
+**八戒**：**[https://bit.ly/39Hkn2m]**
 
 - 节点全部为专线
 
